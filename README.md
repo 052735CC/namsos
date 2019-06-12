@@ -1,0 +1,2 @@
+# namsos
+Ok
